@@ -1,4 +1,4 @@
-# Privacy Policy for CoachLogik
+# Privacy Policy
 
 **Last Updated:** July 22, 2024
 

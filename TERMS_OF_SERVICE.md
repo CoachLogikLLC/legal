@@ -1,4 +1,4 @@
-# Terms of Service for CoachLogik
+# Terms of Service
 
 **Last Updated:** July 22, 2024
 
